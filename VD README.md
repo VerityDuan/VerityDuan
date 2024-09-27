@@ -1,4 +1,4 @@
-- 👋 Hi,world I’m @VerityDuan
+- 👋 Hi, World, I’m @VerityDuan
 - 👀 I’m interested in ART MUSIC AND YOU
 - 🌱 I’m currently learning UI/UX
 - 💞️ I’m looking to collaborate on ARTIST
