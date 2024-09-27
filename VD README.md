@@ -2,9 +2,9 @@
 - 👀 I’m interested in ART MUSIC AND YOU
 - 🌱 I’m currently learning UI/UX
 - 💞️ I’m looking to collaborate on ARTIST
-- 📫 How to reach me YOU CANNOT
+- 📫 How to reach me YOU CANNOT SORRY
 - 😄 Pronouns: SHE/HER
-- ⚡ Fun fact: I AM 6 FEET
+- ⚡ Fun fact: I AM 6 FEET 
 
 There once was a ship that put to sea
 And the name of that ship was the Billy o' Tea
