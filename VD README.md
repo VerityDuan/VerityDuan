@@ -6,7 +6,17 @@
 - 😄 Pronouns: SHE/HER
 - ⚡ Fun fact: I AM 6 FEET
 
-<!---
-VerityDuan/VerityDuan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+There once was a ship that put to sea
+And the name of that ship was the Billy o' Tea
+The winds blew hard, her bow dipped down
+Blow, me bully boys, blow (Hah!)
+
+Soon may the Wellerman come
+To bring us sugar and tea and rum
+One day, when the tonguin' is done
+We'll take our leave and go
+
+She had not been two weeks from shore
+When down on her, a right whale bore
+The captain called all hands and swore
+He'd take that whale in tow (Hah!)
