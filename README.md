@@ -9,4 +9,5 @@
 ## Want to know more? 
   - I was born in Beijing but right now I'm in Calgary learning UX/UI. I love to merge creaticity and functionality together. I am currently learning HTML and CSS and it's been a wild ride. I am enjoying every moment of this learning curve and aspire to find a related job in the future. Thx for reading untill the end. Reach out if you are intrested in collaborating! Have a good day. 
 
-
+### Personal Logo:
+  ![alt text](image-4.png)
